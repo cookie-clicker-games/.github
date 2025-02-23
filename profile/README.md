@@ -51,7 +51,7 @@ Step 6: Prestige and Ascend
 Once you reach a high number of cookies, you can prestige to gain Heavenly Chips, which provide permanent bonuses for future runs.
 
 ---
-##🔥 Advanced Strategies
+## 🔥 Advanced Strategies
 
 If you're looking to maximize your cookie production, consider these strategies:
 
