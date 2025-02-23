@@ -5,6 +5,7 @@
 Play Cookie Clicker [here](https://cookieclicker.ee)
 
 Cookie Clicker is one of the most addictive and entertaining idle games ever created. With a simple concept of clicking to bake cookies, this game quickly evolves into a complex empire of automated cookie production. Whether you're new to the game or a seasoned player, this guide will help you understand the mechanics, strategies, and secrets of Cookie Clicker.
+
 --- 
 ## 🍪 What is [Cookie Clicker?](https://cookieclicker.ee/)
 
