@@ -67,8 +67,9 @@ If you're looking to maximize your cookie production, consider these strategies:
 5. Stock Market Minigame – Buy and sell resources for extra profit.
 
 ---
-## 🔓 How to Play Cookie Clicker 2 Unblocked
-If Cookie Clicker 2 is blocked at school or work, try these methods:
+## 🔓 How to Play Cookie Clicker Unblocked
+
+If Cookie Clicker is blocked at school or work, try these methods:
 
 1. Play on trusted unblocked game sites
 
